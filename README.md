@@ -25,3 +25,8 @@ Bilder av anime jenter som skriver på klasse rommet tavla og tegner koder og fo
 <img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/50a924e0-ba0c-45ca-9447-ad48b31a5070" />
 
 
+
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/f6cd3159-59dc-4ea7-8b8b-f25eda3894de" />
+
+
+
